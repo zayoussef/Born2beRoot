@@ -1,5 +1,3 @@
-#ENGLISH VERSION-Finished Ig 😀
-
 
 # Born2beroot-Tutorial 💻
 
